@@ -1,1 +1,0 @@
-# developer-portal-partner-devs
